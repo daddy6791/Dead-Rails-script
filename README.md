@@ -1,6 +1,6 @@
-# **🚂 Dead Rails Script Roblox 2025 🔧 | Auto Win, Auto Bond, No Key, Mobile Support | Delta, Redz, Speed Hub Compatible | Free Pastebin GUI Scripts**
+# **Dead Rails Script Roblox 2025 🔧 | Auto Win, Auto Bond, No Key, Mobile Support | Delta, Redz, Speed Hub Compatible | Free Pastebin GUI Scripts**
 
-# 🚂 Dead Rails Script 2025 - The Ultimate Roblox Script Hub 🚀
+# Dead Rails Script 2025 - The Ultimate Roblox Script Hub 🚀
 
 Welcome to the **most powerful and fully optimized Dead Rails script** for Roblox in 2025! This GitHub repository contains a curated collection of **Dead Rails scripts** with **auto win**, **auto bond**, **no key**, **mobile support**, and compatibility across **Redz Hub, Delta Executor, Speed Hub, Skull Hub**, and more.
 
